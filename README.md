@@ -1,0 +1,1 @@
+# spzkanji.github.io
